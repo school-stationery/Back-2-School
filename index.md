@@ -1,4 +1,4 @@
-# School Stationery, as easy as ABC
+# School Stationery, without the hassle
 
 Get a quote in 1 hour, including free delivery, through WhatsApp!
 
