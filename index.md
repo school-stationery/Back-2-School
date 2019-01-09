@@ -9,5 +9,5 @@ Get a quote in 1 hour, including free delivery, straight to your WhatsApp!
 
 # [Click to send us a list on WhatsApp](https://goo.gl/VbmkXo)
 
-![Authorized Croxley Distributor](http://www.silveray.co.za/images/default-source/brands/croxley/croxley-logo.jpg?Status=Master&sfvrsn=0)
+![Authorized Croxley Distributor](https://storage.googleapis.com/random_shit/croxley-logo.jpg)
 
