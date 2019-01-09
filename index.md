@@ -2,11 +2,9 @@
 
 Get a quote in 1 hour, including free delivery, straight to your WhatsApp!
 
-Order directly from Croxley Distributor.
-
 ### How it works:
 1. [Click here](https://goo.gl/VbmkXo) to send us your list
-2. Wait while we source you the best prices
+2. Get the best price from an authorized Croxley® Distributor
 3. Take free delivery, anywhere within Gauteng, within 4 business days
 
 # [Click to send us a list on WhatsApp](https://goo.gl/VbmkXo)
