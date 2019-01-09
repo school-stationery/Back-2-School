@@ -1,6 +1,6 @@
 # School Stationery, as easy as ABC
 
-Get a quote in 1 hour, including free delivery, straight to your WhatsApp!
+Get a quote in 1 hour, including free delivery, easily via WhatsApp!
 
 ### How it works:
 1. [Click here](https://goo.gl/VbmkXo) to send us your list
