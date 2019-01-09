@@ -9,5 +9,7 @@ Get a quote in 1 hour, including free delivery, through WhatsApp!
 
 # [Click to send us a list on WhatsApp](https://goo.gl/VbmkXo)
 
+<img src="https://storage.googleapis.com/random_shit/croxley-logo.jpg" width="250" />
+
 ![Authorized Croxley Distributor](https://storage.googleapis.com/random_shit/croxley-logo.jpg | width=250)
 
