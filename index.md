@@ -2,6 +2,8 @@
 
 Get a quote in 1 hour, including free delivery, straight to your WhatsApp!
 
+Order directly from Croxley Distributor.
+
 ### How it works:
 1. [Click here](https://goo.gl/VbmkXo) to send us your list
 2. Wait while we source you the best prices
